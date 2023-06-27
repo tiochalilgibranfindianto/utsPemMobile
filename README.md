@@ -10,4 +10,4 @@ Fakultas Teknologi Informasi
 
 Universitas Merdeka Malang (UNMER)
 
-LINK DRIVE (RAR & BUILD APK) : https://drive.google.com/drive/u/3/folders/12EAQ0yB4GQHlRsSuBygfdHJ3pYYMLXl3
+LINK DRIVE (RAR & BUILD APK) : https://drive.google.com/drive/folders/1B0J_t3ZYjKgsBtO2Bzf0u0qqq0LpZhrx?usp=sharing
